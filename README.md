@@ -1,0 +1,2 @@
+# Project-management
+Strategy Execution, the global authority in project management training, equips your people with the complete package of technical and leadership skills — the mindset, adaptability, and expertise to lead and execute projects in any context. With curricula in adaptive strategic execution, project management, business analysis, contract management, and more, Strategy Execution partners with your organisation to build skill sets and change mindsets. It’s time to declare a new standard of performance.
